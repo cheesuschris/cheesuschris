@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @cheesuschris
 - 👀 I’m interested in ... badminton, programming, travelling.
-- 🌱 I’m currently learning ... how to live life.
+- 🌱 I’m currently learning ... how to improve myself and live life.
 - 💞️ I’m looking to collaborate on ... anything open to me.
 - 📫 How to reach me ... qiangwu6@gmail.com on email.
 - 😄 Pronouns: ... he/him.
